@@ -8,7 +8,7 @@ title: "Marcus Rosentrater - Producer / Director"
 
 Atlanta, Georgia • <marcus@climenole.com> •  404-276-0965
 
-**[IMDB](https://www.imdb.com/name/nm2458522/)**  |  **[Linkedin](https://www.linkedin.com/in/maurcs)**  |  **[Instagram](https://www.instagram.com/maurcs/)**
+**[IMDB](https://www.imdb.com/name/nm2458522/)**  | **[Linkedin](https://www.linkedin.com/in/maurcs)**  |  **[Instagram](https://www.instagram.com/maurcs/)**
 
 ## Producer - Animated Episodic Television (2017-Present)
 From concept to release, I work with showrunners, EPs, and network partners on story, scope, and execution of animated television. My job is to manage 200+ crew members and international vendors to deliver at the expected time, budget, and quality owed to fans and stakeholders.
